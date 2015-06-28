@@ -1,0 +1,1 @@
+Try running the script : http://goo.gl/z3fzsi
